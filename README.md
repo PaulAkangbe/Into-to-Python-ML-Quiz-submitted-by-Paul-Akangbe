@@ -1,1 +1,0 @@
-# Into-to-Python-ML-Quiz-submitted-by-Paul-Akangbe
